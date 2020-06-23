@@ -7,5 +7,5 @@
 
 维持一个轻松的聊天吹水的环境真的那么难吗……
 
-> 群主 Solo 微信号：douglas1840
+> 群主 Solo 微信号：solocoder
 
